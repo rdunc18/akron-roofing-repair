@@ -1,5 +1,7 @@
 # README
 
+<h1>How to choose reliable roofing contractors?</h1>
+
 In most cases, the future homeowner is not limited to financing the construction but delves into all the details and controls all the stages of the process, in which the construction of the roof is one of the most crucial moments. A quality constructed roof is the sum of many factors, and the right choice of roofing contractors guarantees the success. It doesn’t matter whether you are constructing a new roof or renovating it - the consumer's right is to get an effective result. So, what you must consider when hiring roofing contractors?
 
 <img class="alignnone size-medium wp-image-24" src="https://nordmantile.com/wp-content/uploads/2015/12/Roofing-Tips-400x300.jpeg" alt="Roofing Tips" width="400" height="300" />
